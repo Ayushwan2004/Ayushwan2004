@@ -5,7 +5,7 @@ I'm passionate about learning new skills,upgrading myself technically and acquir
 and this is where I showcase some of my projects and contributions. Feel free to explore and get to know me better.
 
 About Me
-🌐 I am a Second year Student passed HSC with first class and currently in journey of computer engineering.
+🌐 I am an engineering Student passed HSC with first class and currently in journey of computer engineering.
 💼 Currently studying at Met's bhujbal knowledge city adgaon,Nashik.
 🚀 Always eager to learn and explore new technologies,Apart from this i've good communication and leadership skills with people.
 📚 I believe in the power of continuous learning and collaboration.
